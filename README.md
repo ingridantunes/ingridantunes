@@ -1,7 +1,7 @@
 ## Bem vindo ao meu perfil 💙
 
 - meu nome é Ingrid
-- tenho 13 anos 🤎
+- tenho 15 anos 🤎
 - amo a matéria de pensamento computacional.
 
 - estou terminando o ensino médio
